@@ -1,4 +1,4 @@
-# 👋 Hi there, I’m @sanjanahegde12
+# 👋 Hi there, I’m Sanjana Hegde
 
 ## About Me
 - 🎓 I'm currently pursuing my B.E. at Sai Vidya Institute of Technology, Department of ISE.
